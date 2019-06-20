@@ -1,1 +1,1 @@
-Noble prize winners
+Nobel prize winners
